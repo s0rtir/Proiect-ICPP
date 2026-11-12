@@ -1,2 +1,2 @@
 # Proiect-ICPP
-ion loh
+MAXIM MORARU SUGUS PULUS
